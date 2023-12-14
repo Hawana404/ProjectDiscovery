@@ -1,2 +1,3 @@
 # ProjectDiscovery
-lets gooooooooooooooooo
+lets gooooooooooooooo
+two o's were removed as well
